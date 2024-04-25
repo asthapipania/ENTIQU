@@ -1,0 +1,2 @@
+# ENTIQU-.
+startup idea
